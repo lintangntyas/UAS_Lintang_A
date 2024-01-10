@@ -1,0 +1,1 @@
+# UAS_Lintang_A
